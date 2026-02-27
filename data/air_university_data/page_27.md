@@ -1,0 +1,394 @@
+# URL: https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx
+
+  * ![](https://webdata.au.edu.pk/AU_New_Assets/images/Icons/facebook-circle.png)
+[Follow Us on  
+Facebook](https://www.facebook.com/air.university.official/)
+  * ![](https://webdata.au.edu.pk/AU_New_Assets/images/Icons/X_Twitter.png)
+[Follow Us on  
+X](https://twitter.com/air_university?lang=en)
+  * ![](https://webdata.au.edu.pk/AU_New_Assets/images/Icons/Instagram_circle.png)
+[Follow Us on  
+Instagram](https://www.instagram.com/airuniversityofficial/?hl=en)
+  * ![](https://webdata.au.edu.pk/AU_New_Assets/images/logo/LinkedIn_circle.png)
+[Follow Us on  
+Linkedin](https://www.linkedin.com/company/airuniversityofficial/)
+
+
+[ ![Stadum](https://webdata.au.edu.pk/AU_New_Assets/AULogoBlue.png)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+  * [About](https://webdata.au.edu.pk/Pages/About/Vision_Mission.aspx)
+  * [Campuses](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * ![Home One](https://webdata.au.edu.pk/AU_New_Assets/islamabad.jpg)
+### [Islamabad Main Campus](https://www.au.edu.pk/)
+![Home Two](https://webdata.au.edu.pk/AU_New_Assets/AUH11Campus_1.jpg)
+### [H-11 Campus](https://www.au.edu.pk/)
+![Home Three](https://webdata.au.edu.pk/AU_New_Assets/kamra.jpg)
+### [Kamra Campus](https://aack.au.edu.pk/)
+![Home Two](https://webdata.au.edu.pk/AU_New_Assets/multan.jpg)
+### [Multan Campus](https://aumc.edu.pk/)
+![Home One](https://webdata.au.edu.pk/AU_New_Assets/kharian_Campus1.png)
+### [Kharian Campus](https://kc.au.edu.pk/)
+![Home Three](https://webdata.au.edu.pk/AU_New_Assets/AU_Karachi_Campus_1.jpeg)
+### [Karachi Campus](https://khi.au.edu.pk/)
+![Home One](https://webdata.au.edu.pk/AU_New_Assets/BAHU_CAMPUS_S2.jpg)
+### [Bahu Campus](https://sk.au.edu.pk/)
+  * [Admissions](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Why AU](https://webdata.au.edu.pk/Pages/Admission/Why_AU.aspx)
+    * [Admission Advertisement](https://webdata.au.edu.pk/Pages/Admission/admission_advertisement.aspx)
+    * [Admission Schedule](https://webdata.au.edu.pk/Pages/Admission/admission_schedule.aspx)
+    * [Fee Structure](https://webdata.au.edu.pk/AU_WEBSITE_DATA_STADUM_HEADERFOOTER/Pages/Admission/fees_financial.aspx)
+    * [Program Representative](https://webdata.au.edu.pk/AU_Documents/Details_of_Dept_Program_Representatives_for_Admissions_Fall_2024_.pdf)
+    * [Fee Advance Tax](https://pwebdata.au.edu.pk/AU_Documents/Details_of_Dept_Program_Representatives_for_Admissions_Fall_2024_.pdf)
+    * [Transfer Students](https://webdata.au.edu.pk/Pages/Admission/transfer-students.aspx)
+    * [Frequently Asked Questions](https://webdata.au.edu.pk/Pages/Admission/FAQS.aspx)
+    * [Scholarship](https://webdata.au.edu.pk/Pages/Admission/Scholarship.aspx)
+    * [Eligibility Criteria](https://webdata.au.edu.pk/Pages/Admission/eligibility_criteria.aspx)
+    * [Required Document](https://webdata.au.edu.pk/Pages/Admission/required_documents.aspx)
+    * [How to apply](https://webdata.au.edu.pk/Pages/Admission/how_to_apply.aspx)
+    * [Admission Prep & Exemptions](https://webdata.au.edu.pk/Pages/Admission/prepare_adm_test.aspx)
+    * [Late Admission](https://webdata.au.edu.pk/Pages/Admission/late_admission.aspx)
+    * [Sample Papers](https://webdata.au.edu.pk/Pages/Admission/Admission_Sample_Paper.aspx)
+  * [Faculties](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Faculty of Aerospace & Strategic Studies](https://webdata.au.edu.pk/Pages/Faculties/DASSS/Departments/AerospaceSciences/dept_aerospace_about.aspx)
+    * [Institute of Avionics and Aeronautics](https://webdata.au.edu.pk/Pages/Faculties/IAA/iaa.aspx)
+    * [Faculty of Basic & Applied Sciences](https://webdata.au.edu.pk/Pages/Faculties/Basic_Applied_Sciences/faclty_applied_about.aspx)
+    * [Faculty of Computing & Artificial Intelligence](https://webdata.au.edu.pk/Pages/Faculties/FCAI/FCAI_dean_msg.aspx)
+    * [National Cyber Security Academy (NCSA) ](https://webdata.au.edu.pk/Pages/Faculties/NCSA/NCSA_DEAN_Message.aspx)
+    * [Faculty of Engineering](https://webdata.au.edu.pk/Pages/Faculties/Engineering/faculty_engineering_about.aspx)
+    * [Faculty of Social Sciences](https://webdata.au.edu.pk/Pages/Faculties/SocialSciences/academics_faculty_social_sciences.aspx)
+    * [Faculty of Health Sciences](https://fazaiamedical.edu.pk/)
+    * [Air University School of Management (AUSOM)](https://webdata.au.edu.pk/Pages/Faculties/AUSOM/Department/AUSOM/ausom_dean_msg.aspx)
+  * [Management](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Graduate Studies](https://webdata.au.edu.pk/Pages/Graduate_Studies/graduate_studies_dean_msg.aspx)
+    * [Planning & Development](https://webdata.au.edu.pk/Pages/Plainning_and_Development/P_D_Introduction.aspx)
+    * [Placement Office](https://webdata.au.edu.pk/placement/)
+    * [Examination](https://webdata.au.edu.pk/Pages/Examination/exam_introduction.aspx)
+    * [Finance](https://webdata.au.edu.pk/Pages/Finance/Fin_Intro.aspx)
+    * [Academics](https://webdata.au.edu.pk/Pages/Academics/index.aspx)
+    * [QEC](https://webdata.au.edu.pk/Pages/QEC_WEB/index.html)
+    * [ICO](https://portals.au.edu.pk/ico/Home)
+    * [CPD](https://portals.au.edu.pk/cpd/)
+    * [ORIC](https://webdata.au.edu.pk/Pages/ORIC/oric_home.aspx)
+  * [Advisory Services](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Career Counseling](https://webdata.au.edu.pk/Pages/Counseling_Advisory_Services/Counseling_Career.aspx)
+    * [Psychological Counseling](https://webdata.au.edu.pk/Pages/Counseling_Advisory_Services/Counseling_Psychological.aspx)
+    * [Academic Counseling ](https://webdata.au.edu.pk/AU_WEBSITE_DATA_STADUM_HEADERFOOTER/Pages/Counseling_Advisory_Services/Counseling_Academic.aspx)
+    * [AU Anti Harrasment Policy.](https://webdata.au.edu.pk/AU_WEBSITE_DATA_STADUM_HEADERFOOTER/Pages/AUAntiHarrasment/AU_Anti_Harrasment_Policy.aspx)
+  * [Research](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Air University Journal of Graduate Research](https://webdata.au.edu.pk/aujogr)
+    * [Corporum: Journal of Corpus Linguistics (CRC) ](https://journals.au.edu.pk/ojscrc/index.php/crc)
+    * [Erevna Journal of Linguistics and Literature (Erevna) ](https://journals.au.edu.pk/ojserevna/index.php/erevna)
+    * [Journal of Business & Economics (JBE)](https://journals.au.edu.pk/ojs/index.php/jbe)
+    * [ICRTSDA ](https://portals.au.edu.pk/ICRTSDA_CONFERENCE/)
+    * [Center of Excellence for CPEC](https://webdata.au.edu.pk/Pages/CPEC/cpec_about_us.aspx)
+    * [Erasmus + ReCyP:HER ](https://webdata.au.edu.pk/Pages/ReCyPHER/ReCyPHER_Home.aspx)
+    * [National Center for Cyber Security (NCCS) ](https://webdata.au.edu.pk/Pages/NCCS/nccs_about.aspx)
+    * [Research Labs](https://webdata.au.edu.pk/Pages/Research/computing.aspx)
+  * [Alumni Portal](https://portals.au.edu.pk/alumni)
+  * [Contact Us](https://webdata.au.edu.pk/Pages/About/Contact1.aspx)
+
+
+[ ![Stadum](https://webdata.au.edu.pk/AU_New_Assets/au.png)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+Since 1999, when the newly minted Air team embraced its mandate to breathe new life into the downtrodden neighbourhood, East Village’s transformation has been nothing short of remarkable. 
+[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+### Recent Posts
+[ ![Blog Image](https://webdata.au.edu.pk/AU_New_Assets/RecentPosts1.jpg)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+#### [Trailblazers in Faculty Perspectives](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[ ![Blog Image](https://webdata.au.edu.pk/AU_New_Assets/RecentPosts2.jpg)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+#### [Future Focus Preparing for Tomorrow](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[ ![Blog Image](https://webdata.au.edu.pk/AU_New_Assets/RecentPosts3.jpg)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+#### [The Green Initiative Sustainability in Action](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+### Popular Tags
+[](https://facebook.com)[](https://twitter.com)[](https://pinterest.com) [](https://linkedin.com)[](https://linkedin.com)
+  * [Home ](https://www.au.edu.pk/)
+  * [ADS And Tender ](https://webdata.au.edu.pk/Pages/AUInfo/Advertisment.aspx)
+  * [Email ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Student Email Login ](https://accounts.google.com/signin/v2/identifier?continue=https%3A%2F%2Fwww.google.com%2Fa%2Fcpanel%2Fstudents.au.edu.pk%2FDashboard&service=CPanel&sacu=1&hd=students.au.edu.pk&flowName=GlifWebSignIn&flowEntry=ServiceLogin#identifier)
+    * [Staff Email Login ](https://outlook.office.com/mail/)
+  * [AULMS](https://webdata.au.edu.pk/Pages/Admission/newpages/Pages/About/au_lms.aspx)
+  * [Constituent Units ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Fazaia Medical College, Islamabad](https://fazaiamedical.edu.pk/)
+    * [Fazaia Ruth Pfau Medical College, Karachi](https://frpmc.edu.pk/)
+    * [College of Aviation Safety Management, Karachi](https://webdata.au.edu.pk/Pages/ConstituentUnit/Casmcontent.aspx)
+    * [College of Flying Training, Risalpur](https://webdata.au.edu.pk/Pages/ConstituentUnit/cft_risalpur_college.aspx)
+    * [NASTP Institute of Information Technology (NIIT), Lahore](https://niit.edu.pk/)
+    * [Fazaia College of Nursing and Allied Health Sciences](https://fcna.edu.pk/)
+  * [Affiliated Institutes ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Bilquis College Nur Khan Base, Rawalpindi](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Bilquis_College.aspx)
+    * [Fazaia College of Education for Women, Lahore](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Fazaia_College.aspx)
+    * [College of Education, Peshawar](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_College_Education_Peshawar.aspx)
+    * [Aero Medical Institute, PAF Base, Masroor, Karachi](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Aero_Medical_Institute.aspx)
+    * [College of Education for Women, Peshawar](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_College_Education_Women_Peshawar.aspx)
+  * [Jobs](https://portals.au.edu.pk/jobs/)
+  * [Aubic](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+  * [Library](https://webdata.au.edu.pk/Pages/Library/about_Library.aspx)
+  * [ Online Portals ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Tell The Registrar](https://portals.au.edu.pk/TELLTHEREGISTRAR)
+    * [Student Facilitation Portal](https://portals.au.edu.pk/students)
+    * [Faculty/Staff Facilitation Portal](https://online.au.edu.pk/austaff)
+    * [Facilitation Portal for Outsider](https://online.au.edu.pk/aufp)
+    * [Deans/HoDs Dashboard Portal](https://online.au.edu.pk/HODDASHBOARD)
+    * [Attendance Portal](https://online.au.edu.pk/ofp)
+  
+
+    * [Marks Entry Portal](https://online.au.edu.pk/ofp)
+  
+
+    * [Leave Portal](https://online.au.edu.pk/leavems)
+  
+
+    * [Student Portal](https://portals.au.edu.pk/students)
+  
+
+    * [Faculty/Staff Portal](https://online.au.edu.pk/austaff)
+  
+
+    * [E-Services Portal (Clearance, Transcript, Degree)](https://portals.au.edu.pk/eservices)
+
+
+[ ](https://www.facebook.com/air.university.official/) [ ](https://twitter.com/air_university?lang=en) [ ](https://www.instagram.com/airuniversityofficial/?hl=en) [ ](https://www.linkedin.com/company/airuniversityofficial/)
+[ ![Stadum](https://webdata.au.edu.pk/AU_New_Assets/AULogoBlue.png)](https://www.au.edu.pk/)
+#### "Taking Academic Excellence to new Heights"
+Address
+### [E-9 Islamabad](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+Email
+### [info@au.edu.pk](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+Phone Number
+### [051-9262557-9 ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[ ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[Admissions Spring 2026 ![icon](https://webdata.au.edu.pk/AU_New_Assets/right-icon.svg)](https://webdata.au.edu.pk/Pages/Admission/admission_advertisement.aspx)
+  * [About](https://webdata.au.edu.pk/Pages/About/Vision_Mission.aspx)
+  * [Campuses](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * ![Home One](https://webdata.au.edu.pk/AU_New_Assets/islamabad.jpg)
+### [Islamabad Main Campus](https://www.au.edu.pk/)
+![Home Two](https://webdata.au.edu.pk/AU_New_Assets/AUH11Campus_1.jpg)
+### [H-11 Campus](https://www.au.edu.pk/)
+![Home Three](https://webdata.au.edu.pk/AU_New_Assets/kamra.jpg)
+### [Kamra Campus](https://aack.au.edu.pk/)
+![Home Two](https://webdata.au.edu.pk/AU_New_Assets/multan.jpg)
+### [Multan Campus](https://aumc.edu.pk/)
+![Home One](https://webdata.au.edu.pk/AU_New_Assets/kharian_Campus1.png)
+### [Kharian Campus](https://kc.au.edu.pk/)
+![Home Three](https://webdata.au.edu.pk/AU_New_Assets/AU_Karachi_Campus_1.jpeg)
+### [Karachi Campus](https://khi.au.edu.pk/)
+![Home One](https://webdata.au.edu.pk/AU_New_Assets/BAHU_CAMPUS_S2.jpg)
+### [Bahu Campus](https://sk.au.edu.pk/)
+  * [Admissions](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Why AU](https://webdata.au.edu.pk/Pages/Admission/Why_AU.aspx)
+    * [Admission Advertisement](https://webdata.au.edu.pk/Pages/Admission/admission_advertisement.aspx)
+    * [Admission Schedule](https://webdata.au.edu.pk/Pages/Admission/admission_schedule.aspx)
+    * [Fee Structure](https://webdata.au.edu.pk/Pages/Admission/fees_financial.aspx)
+    * [Program Representative](https://webdata.au.edu.pk/AU_Documents/Details_of_Dept_Program_Representatives_for_Admissions_Fall_2024_.pdf)
+    * [Fee Advance Tax](https://webdata.au.edu.pk/Pages/Admission/Advance_Tax_on_Payment_of_Fee.aspx)
+    * [Transfer Students](https://webdata.au.edu.pk/Pages/Admission/transfer-students.aspx)
+    * [Frequently Asked Questions](https://webdata.au.edu.pk/Pages/Admission/FAQS.aspx)
+    * [Scholarship](https://webdata.au.edu.pk/Pages/Admission/Scholarship.aspx)
+    * [Eligibility Criteria](https://webdata.au.edu.pk/Pages/Admission/eligibility_criteria.aspx)
+    * [Required Document](https://webdata.au.edu.pk/Pages/Admission/required_documents.aspx)
+    * [How to apply](https://webdata.au.edu.pk/Pages/Admission/how_to_apply.aspx)
+    * [Admission Prep & Exemptions](https://webdata.au.edu.pk/Pages/Admission/prepare_adm_test.aspx)
+    * [Late Admission](https://webdata.au.edu.pk/Pages/Admission/late_admission.aspx)
+    * [Sample Papers](https://webdata.au.edu.pk/Pages/Admission/Admission_Sample_Paper.aspx)
+  * [Faculties](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Faculty of Aerospace & Strategic Studies](https://webdata.au.edu.pk/Pages/Faculties/DASSS/Departments/AerospaceSciences/dept_aerospace_about.aspx)
+    * [Institute of Avionics and Aeronautics](https://webdata.au.edu.pk/Pages/Faculties/IAA/iaa.aspx)
+    * [Faculty of Basic & Applied Sciences](https://webdata.au.edu.pk/Pages/Faculties/Basic_Applied_Sciences/faclty_applied_about.aspx)
+    * [Faculty of Computing & Artificial Intelligence](https://webdata.au.edu.pk/Pages/Faculties/FCAI/FCAI_dean_msg.aspx)
+    * [National Cyber Security Academy (NCSA) ](https://webdata.au.edu.pk/Pages/Faculties/NCSA/NCSA_DEAN_Message.aspx)
+    * [Faculty of Engineering](https://webdata.au.edu.pk/Pages/Faculties/Engineering/faculty_engineering_about.aspx)
+    * [Faculty of Social Sciences](https://webdata.au.edu.pk/Pages/Faculties/SocialSciences/academics_faculty_social_sciences.aspx)
+    * [Faculty of Health Sciences](https://fazaiamedical.edu.pk/)
+    * [Air University School of Management (AUSOM)](https://webdata.au.edu.pk/Pages/Faculties/AUSOM/Department/AUSOM/ausom_dean_msg.aspx)
+  * [Management](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Graduate Studies](https://webdata.au.edu.pk/Pages/Graduate_Studies/graduate_studies_dean_msg.aspx)
+    * [Planning & Development](https://webdata.au.edu.pk/Pages/Plainning_and_Development/P_D_Introduction.aspx)
+    * [Placement Office](https://portals.au.edu.pk/placement/)
+    * [Examination](https://webdata.au.edu.pk/Pages/Examination/exam_introduction.aspx)
+    * [Finance](https://webdata.au.edu.pk/Pages/Finance/Fin_Intro.aspx)
+    * [Academics](https://webdata.au.edu.pk/Pages/Academics/index.aspx)
+    * [QEC](https://webdata.au.edu.pk/Pages/QEC_WEB/index.html)
+    * [ICO](https://portals.au.edu.pk/ico/Home)
+    * [CPD](https://portals.au.edu.pk/cpd/)
+    * [ORIC](https://webdata.au.edu.pk/Pages/ORIC/oric_home.aspx)
+  * [Advisory Services](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Career Counseling](https://webdata.au.edu.pk/Pages/Counseling_Advisory_Services/Counseling_Career.aspx)
+    * [Psychological Counseling](https://webdata.au.edu.pk/Pages/Counseling_Advisory_Services/Counseling_Psychological.aspx)
+    * [Academic Counseling ](https://webdata.au.edu.pk/Pages/Counseling_Advisory_Services/Counseling_Academic.aspx)
+    * [AU Anti Harrasment Policy.](https://webdata.au.edu.pk/Pages/AUAntiHarrasment/AU_Anti_Harrasment_Policy.aspx)
+  * [Research](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+    * [Air University Journal of Graduate Research](https://portals.au.edu.pk/aujogr)
+    * [Corporum: Journal of Corpus Linguistics (CRC) ](https://journals.au.edu.pk/ojscrc/index.php/crc)
+    * [Erevna Journal of Linguistics and Literature (Erevna) ](https://journals.au.edu.pk/ojserevna/index.php/erevna)
+    * [Journal of Business & Economics (JBE)](https://journals.au.edu.pk/ojs/index.php/jbe)
+    * [ICRTSDA ](https://portals.au.edu.pk/ICRTSDA_CONFERENCE/)
+    * [Center of Excellence for CPEC](https://webdata.au.edu.pk/Pages/CPEC/cpec_about_us.aspx)
+    * [Erasmus + ReCyP:HER ](https://webdata.au.edu.pk/Pages/ReCyPHER/ReCyPHER_Home.aspx)
+    * [National Center for Cyber Security (NCCS) ](https://webdata.au.edu.pk/Pages/NCCS/nccs_about.aspx)
+    * [Research Labs](https://webdata.au.edu.pk/Pages/Research/computing.aspx)
+  * [Alumni Portal](https://portals.au.edu.pk/alumni)
+  * [Contact Us](https://webdata.au.edu.pk/Pages/About/Contact1.aspx)
+
+
+[ ![](https://webdata.au.edu.pk/AU_New_Assets/grid2.svg)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+[ **Admissions** ](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx) [Why Air University](https://webdata.au.edu.pk/Pages/Admission/newpages/Why_AU.aspx) [Admission Schedule](https://webdata.au.edu.pk/Pages/Admission/newpages/admission_schedule.aspx) [Admission Advertisement](https://webdata.au.edu.pk/Pages/Admission/newpages/admission_advertisement.aspx) [Fee Structure](https://webdata.au.edu.pk/Pages/Admission/newpages/fees_financial.aspx) [Program Representatives](https://webdata.au.edu.pk/AU_Documents/Details_of_Dept_Program_Representatives_for_Admissions_Fall_2024_.pdf) [Advance Tax on Payment of Fee](https://webdata.au.edu.pk/Pages/Admission/newpages/Advance_Tax_on_Payment_of_Fee.aspx) [Scholarship](https://webdata.au.edu.pk/Pages/Admission/newpages/Scholarship.aspx) [Eligibility Criteria](https://webdata.au.edu.pk/Pages/Admission/newpages/eligibility_criteria.aspx) [Required Documents](https://webdata.au.edu.pk/Pages/Admission/newpages/required_documents.aspx) [How to Apply](https://webdata.au.edu.pk/Pages/Admission/newpages/how_to_apply.aspx) [Prepare for Admission Test](https://webdata.au.edu.pk/Pages/Admission/newpages/prepare_adm_test.aspx) [Late Admission](https://webdata.au.edu.pk/Pages/Admission/newpages/late_admission.aspx) [Transfer Students](https://webdata.au.edu.pk/Pages/Admission/newpages/transfer-students.aspx) [Frequently Asked Questions](https://webdata.au.edu.pk/Pages/Admission/newpages/FAQS.aspx)
+Master Programs 
+  * [MS /M.Phil in Linguistics and Literature (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-1)
+Master in English or Four years Bachelor Degree in English with minimum 45% marks from HEC recognized institute or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [M.Phil in Education (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-18)
+B.Ed four years/ BS in Education /B. Ed 1.5 with MA/ B.Ed 2.00 with BA/ M.Ed/ MA Education/ MA EPM with minimum 2.0/4.0 or 45% marks from any HEC recognized University/ Institute.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidate will appear for an interview for the purpose of final selection.
+  * [MBA 2 Years](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-3)
+Minimum 16 years of education in any discipline (includes Engineering, MBBS, Computer Sciences, and Arts etc.)
+Minimum 2.00/4.00 CGPA or 50% marks in annual system
+University Admission Test and Interview
+  * [Master of Business Administration (Executive) 2 Years (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-4)
+Minimum 16 years of education in any discipline (includes Engineering, MBBS, Computer Sciences, and Arts etc.)
+Minimum 2.00/4.00 CGPA or 50% marks in annual system
+3 Years work experience is required
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [MS in Applied Physics (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-6)
+**Specialization in Renewable Energy / Nano Science & Technology / Computational Physics.**
+M.Sc Physics / BS Physics / BS Engineering from HEC recognized institute with minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [Master of Science in Computer Sciences (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-7)
+16 years education with minimum 130 Credit Hrs in relevant subject (Computer Science, Computer Engineering, Software Engineering or Information Technology.)
+At least 50% marks or 2.00/4.00 CGPA
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [Master of Science in Aerospace Engineering (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-8)
+**Specialization in Fluid Dynamics/Solid Mechanics**
+BE/ B.Sc. Engineering (Aerospace/ Aeronautical/ Mechatronics / Mechanical / Chemical) with minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [Master of Science in Avionics Engineering (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-9)
+**Specialization in Communication Systems Engineering**
+BE / B. Sc. Engineering (Electrical / Electronics/Avionics/ Computer/ Telecom), Minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in an interview for final selection.
+**Specialization in Signal and Image Processing Engineering**
+BE / B.Sc. Engineering (Electrical/ Electronics/ Avionics/ Computer/ Telecom), Minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in an interview for final selection.
+**Specialization in Microwave Engineering**
+BE / B.Sc. Engineering (Electrical/ Electronics /Avionics), Minimum CGPA 2.00/4.00 or equivalent
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in an interview for final selection.
+  * [Master of Science in Information Security (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-10)
+BE / B.Sc. Engineering (Electrical / Computer), BE Software Engg, B.Sc. Computer Science, BIT (4 years), Minimum CGPA 2.00/4.00 or equivalent
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in an interview for final selection.
+  * [Master of Science in Electrical Engineering (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-11)
+B.E/B.Sc Engineering (Avionics/ Computer/ Electrical /Electronics/ Mechatronics /Telecom). Fresh graduates are eligible but some relevant industrial experience will help a student gain more from the program.
+Minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in an interview for final selection.
+  * [Master of Science in Mechatronics Engineering (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-12)
+BE/B.Sc. Engineering or similar qualification in a relevant discipline. Fresh graduates are eligible but some relevant industrial experience will help a student gain more from the program.
+Minimum CGPA 2.00/4.00 or equivalent. Students from other disciplines may be required to take prerequisite courses determined by the Department.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in the interview for final selection.
+  * [Master of Science in Management Sciences (18 Months)(Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-13)
+Minimum 16 years of education in a business related field (MBA/MPA/M.Com /ACMA /ACA/B.Com 4 years program) and BBA Hons. 4 years program (124-136 Cr. Hrs.) with at least 2.00/4.00 CGPA or equivalent in last-earned degree from HEC Recognized University/Institute.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates who qualify the Admission Test will appear in an interview for final selection.
+  * [MS Business Analytics](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-50)
+HEC recognized degree in a business-related discipline e.g. MBA, BBA, BSA&F, BS Aviation Management, BS Healthcare Management, BS Tourism & Hospitality Management. A minimum CGPA of 2.0 in the semester system or 60% marks in Annual system. Candidates must possess a provable work experience of at least two years in a business related organization. Candidates will appear for an interview for the purpose of final selection.
+  * [Master of Science in Mathematics (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-14)
+16 years of education with Major in Mathematics, Minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear in the interview for final selection.
+  * [Master of Science in Mechanical Engineering (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-15)
+**specialization in Design Engineering/Fluid Power Engineering**
+BE / B.Sc. Engineering (Aerospace/ Aeronautical /Mechatronics / Mechanical / Chemical) with minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [Master of Science in Project Management (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-16)
+Minimum 16 years of education (with124-136 Cr. Hrs.) with at least 2.00/4.00 CGPA or equivalent.
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+Candidates will appear for an interview for the purpose of final selection.
+  * [MS in Strategic Studies (MSSS)(Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-17)
+16 years of education, preferably in (Defense & Strategic Studies, Political Science, Defense & Diplomatic Studies, Peace & Conflict Studies, Government and Public Policy Studies, Security Studies, War Studies, Pakistan Studies, Gender Studies, Energy, Environment, Climate Change Studies, and Area or Regional Studies) with at least 2.00/4.00 CGPA or 50% marks in last-earned degree from HEC Recognized University/Institute
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+  * [Master of Science in Data Science (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-40)
+1- For Graduates having BS(CS) or
+2- Equivalent Degree BS (CS) /BS (Software) 4 Years Degree Program (min 130 credit hours), or
+3- Computer Science Conversion Course 2 Years Degree Program referred to as “MCS” or “MSc (CS)” or
+4- 16 year Science (Statistics, Mathematics),
+5- BS Bioinformatics and Engineering (Computer Engineering, Software Engineering, Electrical Engineering) graduates are eligible but they have to cover deficiency.
+6- The candidates who are not from CS background need to pass core deficiency courses.
+  * [Master of Science in Gaming and Multimedia (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-41)
+1- The graduates are eligible to apply who fall in anyone of the following, 
+2- BS(CS), BS(IT), BE(Software), BS(Engineering) or
+3- Equivalent with 4 Years Degree Program (min 130 credit hours) are eligible but they have to cover deficiency during the degree.
+Deficiency Courses:
+    * Programming Fundamentals and OOP (Core Programming Course)
+    * Data Structures & Algorithms
+    * Design & Analysis of Algorithms 
+  * [Master of Science in Artificial Intelligence (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-20)
+The graduates preferably having strong analytical skill are eligible to apply who fall in anyone of the following,
+1- BS(CS), BS/BE(Software), BE(Computer Engineering) BE(Electrical), BE(Mechatronics) 4 years degree program or equivalent with 16 year of education preferably BS(Artificial Intelligence)
+Deficient Courses:-
+    * Computer Programming
+    * Computational Mathematics
+    * Data Structures
+    * Analysis of Algorithms
+    * Machine Learning
+    * Artificial Intelligence
+    * Probability and Statistics
+    * Applied Mathematics
+2- **Zero Semester:** The deficient students will be filtered out at the time of admission interviews and zero semester will be assign to them.
+  * [Masters of Science in Systems Security (Evening)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-21)
+Applicant who has done BS in engineering discipline (Telecom, Electrical, Electronics, Computer Engineering, Avionics and Mechatronics Engineering), BS in Computing disciplines (Computer Science, Cyber security, Software engineering) or equivalent degree programs.
+  * [MS Clinical Psychology](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-22)
+Applications should have 16 years of education (either BS or MSc in Psychology).A minimum CGPA of 2.0 in the semester system or 60% marks in Annual system 
+AU-GAT(Gen) at least 60% score OR NTS-GAT(Gen) at least 50% score. This must be passed before the date of admission in MS Program.
+  * [MS Cyber Security](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-23)
+16 years of education in BS Cyber Security or in any computing discipline with at least 50% marks or 2.00/4.00 CGPA
+AU-GAT (Gen) at least 60% score OR NTS-GAT (Gen) at least 50% score. This must be passed before the date of admission in MS Program
+Candidates will appear for an interview for the purpose of final selection.
+  * [MS Bio-Medical Engineering](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx#collapse2-24)
+BE / B.Sc. Engineering (Bio-Medical/ Mechanical/ Electrical, Electronics, Avionics, Aerospace and Mechatronics) with minimum CGPA 2.00/4.00 or equivalent.
+AU-GAT (Gen) at least 60% score OR NTS-GAT (Gen) at least 50% score. This must be passed before the date of admission in MS Program
+Candidates will appear for an interview for the purpose of final selection.
+
+
+[![Stadum](https://webdata.au.edu.pk/AU_New_Assets/au.png)](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+### About Air
+Air University is a leading institution committed to academic excellence, innovation, and research.We empower students to become future leaders by blending quality education with practical skills and real-world experiences. 
+[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)[](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx)
+### Useful Links
+  * [Students](https://portals.au.edu.pk/students)
+  * [Admission](https://portals.au.edu.pk/admissions)
+  * [Faculty & Stuffs](https://online.au.edu.pk/austaff)
+  * [Job Opportunities](https://portals.au.edu.pk/jobs/)
+  * [Alumni](https://portals.au.edu.pk/alumni)
+  * [E-Services Portal (Clearance, Transcript, Degree)](https://portals.au.edu.pk/eservices)
+  * [Staff Email](https://outlook.office.com/mail/)
+  * [Student Email](https://accounts.google.com/signin/v2/identifier?continue=https%3A%2F%2Fwww.google.com%2Fa%2Fcpanel%2Fstudents.au.edu.pk%2FDashboard&service=CPanel&sacu=1&hd=students.au.edu.pk&flowName=GlifWebSignIn&flowEntry=ServiceLogin#identifier)
+
+
+### Constituent Units
+  * [College of Flying Training, Risalpur](https://webdata.au.edu.pk/Pages/College_of_flying_tranng/CFT_Intro.aspx)
+  * [College of Aviation Safety Management, Karachi](https://webdata.au.edu.pk/Pages/ConstituentUnit/Casmcontent.aspx)
+  * [Fazaia Medical College, Islamabad](https://fazaiamedical.edu.pk/)
+  * [Fazaia Ruth Pfau Medical College, Karachi](https://frpmc.edu.pk/)
+  * [NASTP Institute of Information Technology (NIIT), Lahore](https://nastp.gov.pk/delta)
+  * [Fazaia College of Nursing & Allied Health Sciences](https://fcna.edu.pk/)
+
+
+### Affiliated Institutes
+  * [Aero Medical Institute, PAF Base, Masroor, Karachi](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Aero_Medical_Institute.aspx)
+  * [Fazaia Bilquis College of Education for Women, PAF Nur Khan](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Bilquis_College.aspx)
+  * [College of Education, Peshawar](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_College_Education_Peshawar.aspx)
+  * [College of Education for Women, Peshawar](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_College_Education_Women_Peshawar.aspx)
+  * [Fazaia College of Education for Women, Lahore](https://webdata.au.edu.pk/Pages/AffilatedInstitutes/AFI_Fazaia_College.aspx)
+
+
+[Air](https://webdata.au.edu.pk/Pages/Admission/newpages/masterprog.aspx). All Rights Reserved.
